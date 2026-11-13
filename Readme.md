@@ -54,7 +54,8 @@ This laboratory is intended strictly for education purposes only.
 **ADEBAYO IBRAHIM**\
 Cybersecurity Professional B084
 
-LinkedIn: [www.linkedin.com/in/ibrahim-adebayo-118613449](www.linkedin.com/in/ibrahim-adebayo-118613449/)
+LinkedIn: [www.linkedin.com/in/ibrahim-adebayo-118613449](www.linkedin.com/in/ibrahim-adebayo-techie/)
+
 
 ---
 
